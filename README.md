@@ -30,4 +30,4 @@ For business inquiries, collaborations, or demos:
 - [🐦 Twitter/X](https://x.com/attendura)
 - [▶️ YouTube](https://www.youtube.com/@attendura)
 
-© 2025 attendura. All rights reserved.
+© 2026 attendura. All rights reserved.
